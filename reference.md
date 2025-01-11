@@ -1,0 +1,4 @@
+- **Reference ⬇️**
+  - [Online Tutoriasl Video Inspiration](https://youtu.be/5aYjCD7Ickk?si=jL1e5p1DcvIfIB_5)
+  - [Image 1](https://wallhaven.cc/w/qz7qyr)
+  - [Image 2](https://wallhaven.cc/w/wezj7x)
